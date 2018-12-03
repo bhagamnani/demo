@@ -6,3 +6,5 @@ TETRA SOFT IS LOCATED IN BANJARA HILLS BRANCH IN HYDERABAD AND IN TELANGAN STATE
 it is located near panjagutta
 it is near to ameerpet and panjagutta
 it is nea4r to kahirtabad
+it is in hyderabad
+it is telangana state
